@@ -1,0 +1,2 @@
+# baxtyar
+Sewkany
